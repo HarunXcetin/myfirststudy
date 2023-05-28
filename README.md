@@ -1,0 +1,2 @@
+# myfirststudy
+Öğreniyorum
